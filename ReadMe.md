@@ -1,5 +1,5 @@
 <div align="center">
-<img src="https://www.pinterest.com/pin/luffy-gif-luffy-discover-share-gifs--278519558197402050/" align="center" style="width: 100%" />
+<img src="https://i.pinimg.com/originals/ec/5f/37/ec5f377a267f9e999a5f4b13bd0fb102.gif" align="center" style="width: 100%" />
 </div>  
   
 
